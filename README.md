@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Govindjhacoder
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 👀 I’m interested in Larning
+- 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on Instagram
 - 📫 +917838850929 Reach me
 - 😄 Pronouns: He
